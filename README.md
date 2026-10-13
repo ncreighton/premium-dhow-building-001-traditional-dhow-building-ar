@@ -1,0 +1,2 @@
+# premium-dhow-building-001-traditional-dhow-building-ar
+Tired of scattered notes, faded sketches, and forgotten shipwright techniques? The Traditional Dhow Building &amp; Arabian Boat Craft - Notion Template transforms your passion into a structured, living archive of maritime heritage.  This template solves the chaos of researching and documenting the intricate art of dhow construction. It provides a dedic
